@@ -1,6 +1,6 @@
 ## CURRICULUM VITAE
 - Nama : Siti Srifanti Lesawengen
-- Tempat tanggal lahir : Beha 10 Januari 2002
+- Tempat tanggal lahir : Beha Kecamatan Tabukan Utara 10 Januari 2002
 - Jenis kelamin : Perempuan
 - Agama         : Islam
 - Email         : flesawengen@gmail.com
